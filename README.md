@@ -1,4 +1,4 @@
 ## Cosmic Twist
 
 ### Instructions
-#### Players can choose from any of the following:
+Players can choose from any of the following:
